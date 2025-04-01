@@ -1,4 +1,4 @@
--	👋 Hi, I’m Rania AlHayek, but you may call me Minister Osyraa, Leader of the Emerald Chain and supreme force of brilliance, beauty, and boundless intellect.
+-	👋 Hi, I’m Rania AlHayek, but you may call me Ministerin Osyraa, Leader of the Emerald Chain and supreme force of brilliance, beauty, and boundless intellect.
 -	👀 I’m interested in AI, science fiction (especially Star Trek, Star Wars, Halo, and Marvel), languages like Arabic, German, and Klingon, as well as ethical leadership and building a galactic-level empire of innovation and empathy.
 -	🌱 I’m currently learning German (Deutsch, jawohl!) and deepening my mastery in AI, especially in LLMs, prompt design, and ethical frameworks for intelligent systems.
 -	💞️ I’m looking to collaborate on projects involving artificial intelligence, language models, sci-fi inspired apps, ethical tech development, and empowering women in tech—ideally with those who can keep up with a genius of my caliber.
